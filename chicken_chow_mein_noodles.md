@@ -2,6 +2,10 @@
 # The Cheapest Noodle Dish Ever (Chicken Chow Mein) | But Cheaper
 Noodles should be cheap, they're even cheaper when you make them at home.
 
+[Source](https://www.joshuaweissman.com/post/the-cheapest-noodle-dish-ever-chicken-chow-mein-but-cheaper)
+
+![imgage](chicken_chow_mein_noodles.jpg)
+
 ## INGREDIENTS:
 
 ### Sauce:
